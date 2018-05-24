@@ -1,3 +1,3 @@
 # A Bit Better
 
-![Route to IIIT Bhagalpur](https://youtu.be/Sxmbnh9qmUI)
+![Route to IIIT Bhagalpur](https://www.youtube.com/watch?v=Sxmbnh9qmUI)
