@@ -1,2 +1,3 @@
-# abitbetter
-A Bit Better Website
+# A Bit Better
+
+![Route to IIIT Bhagalpur](https://youtu.be/Sxmbnh9qmUI)
